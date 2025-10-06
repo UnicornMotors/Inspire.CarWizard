@@ -3,3 +3,4 @@
 - [My SECRET to Finding Obscure Car Parts](https://youtu.be/otVu46HsiPU)
 - [Today's Car Won't Last! How Cheap Parts are Killing Cars!](https://youtu.be/uoKRmnAgnAw)
 - [Ford Dealer Missed CRITICAL Issue on this '21 Bronco Sport](https://youtu.be/CvwP3vFAaw8)
+- [Shop TOTALLY Messed Up this Ford Flex!](https://youtu.be/WxT4bZW44l4)
